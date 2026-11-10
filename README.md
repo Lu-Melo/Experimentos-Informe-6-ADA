@@ -1,1 +1,0 @@
-# Experimentos-Informe-6-ADA
